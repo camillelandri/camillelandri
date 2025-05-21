@@ -8,5 +8,4 @@ I'm an astrophysicist at the Institute of Astronomy of KU Leuven, Belgium.
 - Pronouns: They/them 🏳️‍🌈
 
 Also, I doodle a lot in my spare time~
-
-![Loop](https://github.com/user-attachments/assets/73133886-8774-4b48-b292-fd558385100f)
+![Loop](https://github.com/user-attachments/assets/3d00195a-dd99-44ec-9eb0-fd800a185e69)
